@@ -6,7 +6,7 @@
  This is just for stuff.
  Please do not contact me at any moment unless urgent and you are in my area AND YOU KNOW IT.
 
- I'm a young person, but I have enough knowledge to know when bad things are happening to me, and what to do. Do not attempt this, not on my Wattpad account.
+ I'm a young person, but I have enough knowledge to know when bad things are happening to me, and what to do. Do not attempt this, nor on my Wattpad account.
  Do support young creators for they are probably seeking validation or attention, and they probably deserve it.
 
  For any other creators you might want to support:
